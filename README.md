@@ -1,0 +1,5 @@
+- 👋 wat up, chief
+- 👀 I’m interested in making money
+- 🌱 I’m currently learning esoteric teachings & gov't loopholes
+- 💞️ I’m looking to collaborate on decentralized bet exchanges
+- 📫 How to reach me ...
